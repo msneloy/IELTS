@@ -1,11 +1,11 @@
 ### A. Put a or an in gaps where necessary.Remember that only countable nouns that are singular take a or an.Don’t put anything before a plural countable noun or an uncountable noun.
 
-1. You put_____record on_____record-player to get ___music.
-2. He gave us all____advice on what to take with us.
-3. We saw ____beautiful silk and ____cotton in india.
-4. I have to buy ____film for the holiday.I think I’ll get about five rolls.
-5. Piya getting divorced? That’s____interesting news!
-6. He is doing____investigation on teenage delinquency for college project.
+1. You put__*___record on__a___record-player to get _a__music.
+2. He gave us all__*__advice on what to take with us.
+3. We saw __a__beautiful silk and __a__cotton in india.
+4. I have to buy __a__film for the holiday.I think I’ll get about five rolls.
+5. Piya getting divorced? That’s__an__interesting news!
+6. He is doing__an__investigation on teenage delinquency for college project.
 7. ____cigarette is made of_____tobacco and _____paper.
 8. You’ll need _____flour if you want to make cake.
 
