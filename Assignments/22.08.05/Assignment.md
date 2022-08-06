@@ -1,6 +1,6 @@
 ### A. Put a or an in gaps where necessary.Remember that only countable nouns that are singular take a or an.Don’t put anything before a plural countable noun or an uncountable noun.
 
-1. You put_____record on_____record-player to get ___music.
+1. You put_r____record on_____record-player to get ___music.
 2. He gave us all____advice on what to take with us.
 3. We saw ____beautiful silk and ____cotton in india.
 4. I have to buy ____film for the holiday.I think I’ll get about five rolls.
