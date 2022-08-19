@@ -7,7 +7,7 @@ The chart shows information that housing was more expensive in Malaysia than in 
 By contrast, the cost of a family in Japan was twofold than Malaysia in healthcare and transport which were 6% and 20%, respectively.
 
 
-Total word (161).
+Total words (161).
 Band -- Would have been a solid 7 if you were careful with the grammar. The content and execution were great.
 
-Tips for Increase Band -- Be careful with the grammar, read some english light novels if possible.
+Tips to Increase Band -- Be careful with the grammar, read some english light novels if possible.
