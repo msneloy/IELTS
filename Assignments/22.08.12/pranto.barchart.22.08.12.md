@@ -1,6 +1,7 @@
-The provided bar chart's information showes the difference between males and females spare time in five different categories of work.
+The provided bar chart shows the difference between males' and females' spare time in five different categories of work.
 
-Overall,the percentage of men and women's leisure time assummed in five catagories and among them men enjoyed more free time in three categories where women enjoyed free time in another two sections.
-The comparison of men and womens free time showed that men enjoyed spare time in three section then women.Males employee enjoy 45 hours of free time in employed full time where females enjoyed 38 hours. Moreover,males enjoyed 85 hours spare time both unemployed and retired sections and females can enjoy only 78 hours both of them.
+Overall, the percentage of men's and women's leisure time were allocated into five categories and among them, men had the advantage of relatively more leisure time in three categories whereas women enjoyed the additional time to spare in the other two sections. 
 
-By contrust,womens enjoyed 40 hours and 50 hours in employed part time and housewives,where no data is given for the mens.
+The comparison of men's and women's free time showed that men were allocated more spare time in three sections than women. Male employees enjoy 45 hours of free time in full-time employment whereas females were given 38 hours. Moreover, males benefited from 85 hours of spare time in the unemployed and the retired sections while the females could have only 78 hours in those sections, respectively.
+
+By contrast, women enjoyed 40 hours and 50 hours in part-time employment and as housewives, where no data is given for the men.
