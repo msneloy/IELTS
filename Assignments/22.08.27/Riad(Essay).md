@@ -1,4 +1,5 @@
 <h3>Essay 01---</h3>
+
 A difference has been observed almost every countries between the upper class people and the lower class people and the gap increases day after day. This essay will discuss the main reasons of inequality including lack of education and unemployment problems. This essay will suggest solutions to these problems along with providing free education and creating job's fields.
 
 In many countries, education is an expenditure field according people's live. A person has lots of demand for his lives scilicet accommodation, foods, healthcare , entertainments and education. If one thing is expensive, poor peoples try to avoid or balance it according their needs. However, as the rich peoples can't face this problem, they have significant money to fulfil their requirement. So, Government can take two solutions to solve this problem. One is make education free for all kinds of people. Another one is try to decrease education cost so that poor family children's can make their educated.Clearly, being able to educate is a key advantage to reduce the intermediate gap.
