@@ -7,6 +7,13 @@ In many countries, education is an expenditure field according people's live. A 
 On the other hand, a unwealthy person needs job for his existence. Without employment, no one is able to improve one's lives. In addition, unemployment drug a person below at the poverty line. Wealthy peoples have their own business so that this can't seem to be problem for their. For solving this problem, government can receive two solutions. One is creating job's fields for education people, for example, give a government loan and try to export manpower with give them proper skills. Another step is vocational education where a person will able to make his own employment. Apparently, an employee person has ability to diminish the gap.
 
 There is empty space between wealthy and wealthy people and this is going to be larger in today's fast paced world. This essay discussed about the vital problems and also gave suggestions how to solve those problems.
-                                                        <h2 style="color:DodgerBlue;">--------END-----</h2>
+                 <h2>--------END-----</h2>
 <h3>Essay 02---</h3>
 
+There are lots of ways to spend leisure time. One of those is traveling where lots of people are loving to explore varied places, different cultures and that is increasing than previous. This essay will discuss why people are loving it and also the benefits which are received by traveler during visiting many places.
+
+Nowadays, Most of the people like to visit one place to another places. There are lots of reasons like as traveling is now cheaper than past, people are finding astonishing places throw internet. Travel agency, for instance, are providing cheapest packages for people. Most of the persons are influenced by this. Many countries economy depends on tourism. Because of this, they made their immigration easy for foreigners so that outside people can make their mind for visiting.
+
+Traveling in several places open mind and recharge a person's body. In addition, visitors explore new things from host country or place. New place comes with new knowledge, several kinds of cuisines, experience various customs and culture, knowing about visiting site history and monuments. It can broaden our horizons. Most important thing is to learn visiting people's manners and also how they spend their living life. 
+
+In today's paced world, People are getting more stress and bearing job's pressure during their living life. That's why many person seek relaxing moment for few time. This essay discussed that why traveling is loved by many man and what kinds of facilities they received by traveler. Traveling is not only one way to spend free time for enjoying. Many people make their own for enjoyment.
