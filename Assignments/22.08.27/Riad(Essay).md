@@ -7,6 +7,6 @@ In many countries, education is an expenditure field according people's live. A 
 On the other hand, a unwealthy person needs job for his existence. Without employment, no one is able to improve one's lives. In addition, unemployment drug a person below at the poverty line. Wealthy peoples have their own business so that this can't seem to be problem for their. For solving this problem, government can receive two solutions. One is creating job's fields for education people, for example, give a government loan and try to export manpower with give them proper skills. Another step is vocational education where a person will able to make his own employment. Apparently, an employee person has ability to diminish the gap.
 
 There is empty space between wealthy and wealthy people and this is going to be larger in today's fast paced world. This essay discussed about the vital problems and also gave suggestions how to solve those problems.
-                                                        <h4 style="color:Tomato;">--------END-----</h3>
+                                                        <h4 style="color:Tomato;">--------END-----</h4>
 <h3>Essay 02---</h3>
 
