@@ -17,3 +17,15 @@ Nowadays, Most of the people like to visit one place to another places. There ar
 Traveling in several places open mind and recharge a person's body. In addition, visitors explore new things from host country or place. New place comes with new knowledge, several kinds of cuisines, experience various customs and culture, knowing about visiting site history and monuments. It can broaden our horizons. Most important thing is to learn visiting site people's manner and also how they spend their living life. 
 
 In today's paced world, People are getting more stress and bearing job's pressure during their living life. That's why many person seek relaxing moment for few time. This essay discussed that why traveling is loved by many man and what kinds of facilities they received during traveling. Traveling is not only one way to spend free time for enjoyment. Many people make their own way for relaxing.
+##--------END-----
+
+<h3>Essay 03---</h3>
+
+Imported food is adding a new dimension in any country food chain. People are able to purchase any kinds of food and also teste those food. Most of the people desire for shopping foreign foodstuff more than the native rations. This essay will explore firstly, some reason why people buy imported feed and then will mention some of the steps which will be able to cheer people up to buy local foodstuff.
+
+First and foremost, many countries has less fertile land for cultivating snack. Bangladesh, for instance, has a big amount of the population, all of demography chooses to buy imported food, due to according to the population, Bangladesh has no enough space for producing foodstuff. As a consequence, Bangladesh has to import foreign food. Repercussions more and more people like to purchase imported foodstuff then local meal.
+
+On the other hand, there are several way to solve the problem. Government has to barred fertile land for cultivating food and also have to improve transportation system. Many countries in south asia, for example, are demolished their agricultural land and make industry which is distressed for a country foodstuff. In addition, many countries deport system are sluggish due to bad road condition. Government must be encouraged people for farming and also improve their export and traffic. 
+
+To conclude, in today's paced world people are loving to explore new things via internet and travelling. People feel bored by feeding same kinds of food. Different food come with different teste. This essay discussed some reason about people influence of imported snacks and some steps can be solved this problem like selecting some place for cultivating, by doing this people can be encouraged. Importing food isn't good idea cause it increases the price of local market.
+###Total words -- 291.
