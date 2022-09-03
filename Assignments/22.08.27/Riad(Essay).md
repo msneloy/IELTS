@@ -28,4 +28,5 @@ First and foremost, many countries has less fertile land for cultivating snack. 
 On the other hand, there are several way to solve the problem. Government has to barred fertile land for cultivating food and also have to improve transportation system. Many countries in south asia, for example, are demolished their agricultural land and make industry which is distressed for a country foodstuff. In addition, many countries deport system are sluggish due to bad road condition. Government must be encouraged people for farming and also improve their export and traffic. 
 
 To conclude, in today's paced world people are loving to explore new things via internet and travelling. People feel bored by feeding same kinds of food. Different food come with different teste. This essay discussed some reason about people influence of imported snacks and some steps can be solved this problem like selecting some place for cultivating, by doing this people can be encouraged. Importing food isn't good idea cause it increases the price of local market.
+
 ###Total words -- 291.
