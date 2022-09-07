@@ -29,4 +29,14 @@ On the other hand, there are several ways to solve the problem. Government has t
 
 To conclude, in today's paced world people are loving to explore new things via internet and travelling. People feel bored by feeding same kinds of food. Different food come with different teste. This essay discussed some reason about people influence of imported snacks and some steps can be solved this problem like selecting some place for cultivating, by doing this people can be encouraged. Importing food isn't good idea as it increases the price of local market.
 
-###Total words -- 331.
+######Total words -- 331.
+
+##Essay -04....
+
+Nowadays, most of the people that are want to enjoy their leisure time, are loving to visit outside their nations. Visited country are also benefited in many ways by traveler. This essay will discuss both the advantages and the disadvantages of this trend and show that, indeed, visiting foreign is suitable for the traveler and the land that they visited.
+
+There are a number of important advantages that international travel inflicts. The first is that the host country creates hotels, entertainment places, tourist spots, sight seeing sites. Maldives, for example, makes diving sites, snorkeling and boating artificial beaches where traveler enjoy their free moment. Second, the tourist country makes work places for their men which boost their economical growth. Maldives, Kashmir which is an Indian state, some European countries, for instance, most of the percentage of their economy depends on tourist spots. Clearly, visiting outsides from own nation comes with more benefit for traveler and the visited country.
+
+Despite the benefits, there are some drawbacks associated with the shift away from traveling. The main issue is tourism causes a rise in the cost of living for local people. Cox's bazar that is a division of Bangladesh, as  proof, which is the most expensive division and prices of goods and services are increasing up day after day. In addition, tourist are affected by local violence's. For precedent, Kashmir where riot can occur anytime and Cox's bazar where most of the people are attacked after sunset. Overall, though, these two drawbacks pale in comparison to the benefits.
+
+This essay discussed how international travel effected both the traveler and the country where they visited. In my opinion, although there are disadvantages associated with travelling, the advantages clearly outweigh them.
