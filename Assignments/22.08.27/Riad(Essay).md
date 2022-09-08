@@ -40,3 +40,17 @@ There are a number of important advantages that international travel inflicts. T
 Despite the benefits, there are some drawbacks associated with the shift away from traveling. On the one hand, tourism causes a rise in the cost of living for local people. Cox's bazar that is a division of Bangladesh, as  proof, which is the most expensive division and prices of goods and services are increasing up day after day. On the other hand, tourist are affected by local violence. For precedent, Kashmir where riot can occur anytime and Cox's bazar where a number of people are attacked after sunset. Overall, these two drawbacks pale in comparison to the benefits.
 
 This essay discussed how international travel effected both the traveler and the country where they went. In my opinion, although there are disadvantages associated with travelling, the advantages clearly outweigh them.
+
+<h3>----------------- End 04 ----------------</h3>
+
+<h3>Essay 05---</h3>
+
+Nowadays, foreign language is an essential part of student's study. As learners would like to go abroad for their higher education, schools try to teach them at least a foreign tongue for their upcoming phase. Most educational academy choose language for their students and they suggest compulsively to learn. This essay will discuss why forcefully teaching such as new tongue, is totally illogical for learners.
+
+In academy, they always try to educate different languages which is good because they are wary about student's future. Bangladesh and India, as proof, teach English as compulsory subject. Since, it's crucial, world uses it as an international language. A large number of content namely books, documents, movies, songs are released in English. If leaners learn English from their earlier time, they may get advantages from those. Many educationists realize that learning a new language from earlier age is better than older age. This few instances have bolstered in school's syllabus to make a foreign language obligatory.
+
+Learning different languages is a skill and necessary for those whom want to go outside from country for education or work. In education system, they make a languag as compulsory subject but most students have no idea whether they learn it or not. Language learning as a subject which are doing in school, is completely unjustifiable. If a student get less marks, for example, in English, they feel pressure cause most students are doing well. It breaks their moral and also learners lose their interest to learn a new tongue. Apparently, forcefully teaching foreign language is completely irrational and schools should not do it.
+
+This essay discussed why schools forcefully taught a foreign tongue and underestimated their education system. In my opinion, mightily education in schools is not good for student and also for a nation.
+
+<h3>Total Words-- 298</h3>
