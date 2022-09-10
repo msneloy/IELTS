@@ -54,3 +54,15 @@ Learning different languages is a skill and necessary for those whom want to go 
 This essay discussed why schools forcefully taught a foreign tongue and underestimated their education system. In my opinion, mightily teaching in schools is not good for student and also for a nation.
 
 <h3>Total Words-- 298</h3>
+
+<h3>Essay 06---</h3>
+
+After going to university, students may have improved career opportunities, experience greater cultural awareness, and have a life with more choices and possibilities. A certain amount of men assume that free schooling is the civil liberties for all kind of people without checking their commercial status. This essay will discuss why free education is slightly illogical concept for a country.
+
+Higher education is one of the basic need for a nation. After completing graduation, educated men lead the country for the progress. Without higher educated people, country's future will not be in safehand. Moreover, country's development will be stopped due to uneducated residents. This few instances have bolstered civilian to think free education for all people is one the best solution to face this problem. Lots of country know this and they started to work this criteria. Especially, European countries and Russia, as proof, have made education compulsory for all. Apparently, the progress of those nations is outstanding. 
+
+Despite the benefits, there are some drawbacks associated with free education. Most countries cannot bear the budgets of this sections. Particularly, growing middle-income countries, for example, Bangladesh, India, and Philippines, will be faced a huge economy crises. Somehow, if a numerous student get educated, there will be no way to give them a proffer job or use their knowledge in other sections. They will turn into a nation's comprehend. Higher study is necessary but it should not be free. There are many ways to solve it such as scholarships, create work places for graduates running students. 
+
+This essay showed how education without money will effect a realm and why it will be a bad verdict for a country. In my opinion, self-destroying decision if a nation make their graduation free for all people without concern civilian economic situation.
+
+<h3>Total Words-- 296</h3>
