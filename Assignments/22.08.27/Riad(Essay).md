@@ -68,3 +68,15 @@ Despite the benefits, there are some drawbacks associated with free education. M
 This essay showed how education without money will effect a realm and why it will be a bad verdict for a country. In my opinion, self-destroying decision if a nation make their graduation free for all people without concern civilian economic situation.
 
 <h3>Total Words-- 296</h3>
+
+<h3>Essay 07---</h3>
+
+At present, children pass a lot of time to overlook their shows such as cartoon on television. Many people inform that it creates influences on kiddies behavior and others say it depends how much time they spend on watching tv. This essay will discuss both sides of the argument in depth.
+
+A large number of folks who strongly believe that tv contents create bad impact on little viewers. As there are so many unethical shows which are extremely bad for children scilicet sexual content, shows where using slung languages, actor or actress violent act. Some Educationalists warn that many kiddies show those types of action in school and society where they live. In addition, it affects on other children also. These reasons are enough to trust that many tv programmes are really detrimental for little viewers.
+
+In contrast to people who believes that expending long time in watching television's shows influence badly on children daily's assignment. However, many tv acts are helpful for kiddies such as cartoon where they learn different tongue, Sisimpur which is popular for educational videos for children in Bangla but, if they pass an abundant time in front of tv screen, this would damage their eyesight as well as decrease their tendencies to interact with society. Many eye-specialists, as proof, say that children eye-problems are increase significantly where most of patient spend their time on watching television. For those reasons, many humans believe that television impacts little viewer's manner while watching for long time.
+
+Little viewer love to view television, no matter what they watch and how much time they spend or themselves. Many parents tell that tv is deleterious for children while others say passing a large time in front tv screen is the worst for kiddies behavior. This essay criticized the various reasons why and how television influences on children's nature.
+
+<h3>Total Words-- 306</h3>
