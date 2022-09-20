@@ -80,3 +80,15 @@ In contrast to people who believe that expending long time in watching televisio
 Kiddies love to view television, no matter for themselves what they watch and how much time they spend. Many parents tell that tv is deleterious for children while others say passing a large time in front tv screen is the worst for kiddies behavior. This essay criticized the various reasons why and how television influences on children's nature.
 
 <h3>Total Words-- 306</h3>
+
+<h3>-- Essay-08 ----</h3>,
+
+It is true that to join in job after finishing school is increasing significantly. While many people think that to study at university is the best way to success in career. On the other hand, others suppose that to join at work after completing school is better for student life. This essay will consult deeply in both argument.
+
+Some amount of folks strongly think that the best route for successful profession is studying at university or college. Some country's students, for example, Bangladesh, India and other developing countries, have to complete their graduation because in those country's have no company which provide job to a person without finishing higher studies. In addition, many company's policy say that student do not have enough knowledge without completing university education. If they face any real life problems in job, they can not able to solve this. On top of that, their communication with people is so wicked. These reasons are enough to trust that to study at university or college is the best medium for successful to walks of life.
+
+In contrast to people who think that joining at work after school gives benefit for their upcoming life. A certain amount of nations believe that working ability can gain without higher studies. Some country's company, as proof, the USA and the European countries, only check their particular quality which require for their company. They strongly believe that university or college do not help students to achieve working experience. On top of that many global giant companies are hiring workers without checking their education background who are truly good at their field. For those reasons, some folks suggest this way for successful career.
+
+For success in career, students choose different different ways. While some people suggest studying at university or college is great idea and others say joining job after school is precise for student's upcoming life. This essay criticized the various reasons why and how university education effected student working life.
+
+<h3>Total Words-- 325</h3>
